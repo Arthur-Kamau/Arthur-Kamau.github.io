@@ -1,3 +1,3 @@
 # Arthur-Kamau.github.io
-Bio
+Bio [here](https://arthur-kamau.github.io/)
 
